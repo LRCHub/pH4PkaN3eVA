@@ -1,0 +1,95 @@
+# Slipknot – Spit It Out
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:03.45] Since you never gave a damn in the first place,
+[00:04.91] Maybe it's time you had the tables turned
+[00:06.33] 'Cause in the interest of all involved I got the problem solved
+[00:08.21] And the verdict is guilty...
+[00:22.21] 
+[00:09.47] ...Man nearly killed me
+[00:10.49] Steppin' where you fear to tread
+[00:11.39] Stop, drop and roll
+[00:12.29] You were dead from the git-go!
+[00:13.12] Big mouthfucker, stupid cocksucker
+[00:14.43] And if you're scared of me now, then you're dumber than I thought
+[00:16.19] Always is, and never was
+[00:17.45] Foundation made of piss and vinegar
+[00:18.74] Step to me, I'll smear ya
+[00:19.90] Think I fear ya? Bullshit!
+[00:20.99] Just another dumb punk chompin' at this tit
+[00:22.52] Is there any way to break through the noise?
+[00:24.38] Was it something that I said that got you bent?
+[00:25.85] Gotta be that way if you want it
+[00:27.32] Sanity, literal profanity hit me!
+[00:43.82] 
+[00:30.01] Spit it out
+[00:32.42] All you wanna do is drag me down
+[00:34.19] All I wanna do is stamp you out
+[00:49.69] 
+[00:36.58] Spit it out
+[00:38.95] All you wanna do is drag me down
+[00:40.44] All I wanna do is stamp you out
+[00:55.94] 
+[00:45.01] Maybe it's the way you gotta spread a lotta rumor fodder
+[00:46.75] Keepin' all your little spies and leaving when you realize
+[00:48.30] Step up, fairy
+[00:49.08] I guess it's time to bury your ass with the chrome
+[00:50.76] Straight to the dome
+[00:51.68] You heard me right, bitch, I didn't stutter
+[00:52.94] And if you know what's good, just shut up and beg, brother
+[00:54.58] Backstab - don't you know who you're dissin'?
+[00:55.92] Side swipe,we know the Ass that your kissin'
+[00:57.75] Bigity-biggidy bitch boy, halfway hauser
+[00:59.16] Don't hear shit cuz It keeps gettin' louder
+[01:00.81] Come on, and get a face full 'o tactic
+[01:02.45] Lipping off hard, going home in a basket
+[01:03.95] You got no pull, no power, no nothin
+[01:05.44] Now you start shit?
+[01:06.48] Well, ain't that something?
+[01:07.34] Payoffs don't protect, and you can hide if you want
+[01:08.99] But I'll find you, comin' up behind you!
+[01:28.99] 
+[01:11.32] Spit it out
+[01:13.55] All you wanna do is drag me down
+[01:15.38] All I wanna do is stamp you out
+[01:30.88] 
+[01:17.85] Spit it out
+[01:19.94] All you wanna do is drag me down
+[01:21.53] All I wanna do is stamp you out
+[01:37.03] 
+[01:28.98] 'Bout time I set this record straight
+[01:30.65] All the needlenose punchin' is making me irate
+[01:32.35] Sick o' my bitchin' fallin' on deaf ears
+[01:34.17] Where you gonna be in the next five years?
+[01:35.72] The crew and all the fools, and all the politix
+[01:37.41] Get your lips ready, gonna gag, gonna make you sick
+[01:39.11] You got dick when they passed out that good stuff
+[01:41.04] BAM!
+[01:41.56] Are you sick of me?
+[01:42.02] Good enough, had enough!
+[01:54.02] 
+[01:42.72] Fuck me! I'm all out of enemies!
+[01:44.23] Fuck me! I'm all out of enemies!
+[01:45.81] Fuck me! I'm all out of enemies!
+[01:47.47] Fuck me! I'm all out of enemies!
+[01:49.02] Fuck me! I'm all out of enemies!
+[01:50.63] Fuck me! I'm all out of enemies!
+[01:52.33] Fuck me! I'm all out of enemies!
+[01:54.08] Fuck me! I'm all out of enemas!
+[02:09.58] 
+[01:57.05] Spit it out
+[01:58.99] All you wanna do is drag me down
+[02:00.44] All I wanna do is stamp you out
+[02:15.94] 
+[02:03.29] Spit it out
+[02:05.37] All you wanna do is drag me down
+[02:06.98] All I wanna do is stamp you out
+[02:22.48] 
+[02:09.88] Spit!
+[02:12.80] Spit!
+[02:16.23] Spit!
+[02:18.37] Spit!
+[02:19.67] Spit... it out!
+```
